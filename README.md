@@ -1,2 +1,1 @@
-# no-enc
-Scrip ini saya buat untuk kepentingan pribadi 
+//SUBSCRIBE HERMAN CHANEL
